@@ -53,7 +53,7 @@ I enjoy learning new technologies, solving technical problems, and turning ideas
 
 📧 **Email:** zakimubarok.work@gmail.com
 
-💼 **LinkedIn:** [Connect with me](ttps://www.linkedin.com/in/zaki-mubarok-240a272a5?utm_source=share_via&utm_content=profile&utm_medium)
+💼 **LinkedIn:** www.linkedin.com/in/zaki-mubarok-240a272a5
 
 🌐 **Portfolio:** [Visit my portfolio](YOUR_PORTFOLIO_URL)
 
